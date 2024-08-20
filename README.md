@@ -1,2 +1,2 @@
 # Achievements-Certificates
-Here is all relavant data you want
+Here is all relevant data you want
